@@ -1,5 +1,4 @@
-## MiniCampXPE
+## MiniCampXPE 📚
 ----
-<br>
 
-### Projeto feito no Mini Camp da XPE
+### Projeto feito no Mini Camp da XPE 🚀👩‍💻 
